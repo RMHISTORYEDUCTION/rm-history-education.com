@@ -1,0 +1,2 @@
+# rm-history-education.com
+GRADE 9 HISTORY CLASS... DETECT BY -: RAMEESHA GAMAGE TEACHER  -----------------------------------------                   GROUP RULES  ----------------------------------------- ♦️DON'T EXIT THIS GROUP  ♦️DO NOT SCOLDING THIS GROUP ♦️DONT PUT UNNECESSARY MESSAGES  ♦️DONT SHARE HOAX AND UNNECESSARY LINKS ♦️DONT PUT UNWANTED PHOTOS,VIDEO'S ,STICKER ARE PROHIBITED  -----------------------------------------             CLASS HELDING TIMES  -----------------------------------------       🏅WENSDAY-:9.30 /SATURDAY 9.30
